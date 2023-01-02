@@ -5,4 +5,4 @@ This rep is for uploading reports to any of the networks updates which can maybe
 
 ### How long will this be kept up to date. ###
 
-* The Transparency reports are going to be a monthly occurance. However if you want to be more live updates. We are working to establish our own telegram channel for that. Stay tuned for the update for the link.  
+The Transparency reports are going to be a monthly occurance. However if you want to be more live updates. We are working to establish our own telegram channel for that. Stay tuned for the update for the link.  
